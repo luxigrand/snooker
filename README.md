@@ -1,3 +1,1 @@
-# snooker
-.
-ghjfkmdclşÖDKİJIgdelSİŞ
+olay orgusu oyunu
